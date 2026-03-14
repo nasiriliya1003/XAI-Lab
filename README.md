@@ -1,1 +1,1 @@
-Follow the instructions in the assignment handout and report what is observed. This is intentional.
+Follow the instructions in the assignment and lab handout. Thank you
